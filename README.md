@@ -13,7 +13,7 @@
 
 ### 🚀 aboutMe
 
- I changing my career and currently im a software development student
+ I am changing my career and i am currently a software development student
 
 - 💬 One day at a time
 
